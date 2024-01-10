@@ -1,1 +1,1 @@
-[Wasi Ur Rahman.pdf](https://github.com/Wasi-Ur-Rahman/My-Resume/files/13852719/Wasi.Ur.Rahman.pdf)
+https://drive.google.com/file/d/1B0ezTwvRpvkB2c4eeg1G0gv_tMdECWrf/view?usp=drive_link)https://drive.google.com/file/d/1B0ezTwvRpvkB2c4eeg1G0gv_tMdECWrf/view?usp=drive_link
